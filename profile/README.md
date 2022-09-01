@@ -1,6 +1,6 @@
 ## Endeavor to compound the improvement of antifragility 
 
-*With every second ... be grateful for NOW -- but always be improving your* ***luck surface***
+*With every second ... exemplify gratitude as you improve the yield potential your* ***luck surface***
 
 Develop discipline for the emotional fitness to constantly replace old habits that are holding you back with new better practices.
 
