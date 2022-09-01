@@ -1,4 +1,6 @@
-## Invest your time in making your life much more antifragile. 
+## Endeavor to compound the discipline of antifragility with every second. 
+
+***Always be training***
 
 Find better ways to control your emotions and diligently replace old habits with new best practices.
 
