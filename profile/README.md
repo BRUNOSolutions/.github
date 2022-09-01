@@ -1,8 +1,8 @@
-## Endeavor to compound the discipline of antifragility with every second. 
+## Endeavor to compound the improvement of antifragility 
 
-***Always be training***
+*With every second ... be grateful for NOW -- but always be improving your* ***luck surface***
 
-Find better ways to control your emotions and diligently replace old habits with new best practices.
+Develop discipline for the emotional fitness to constantly replace old habits that are holding you back with new better practices.
 
 When you are unable to take advantage of increasing levels of chaos, competition, innovation happening in the world, it your fault for being stuck in your old ways ... stop EVER blaming others. Just stop it!
 
