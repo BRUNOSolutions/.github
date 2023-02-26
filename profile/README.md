@@ -2,11 +2,15 @@
 
 ## BE a Christian
 
-Stop telling people that you are a Christian; stop thinking of heaven as a post-death retirement community where you get to hang out with your favorite people. 
+Stop telling people that you are a Christian ... BE a Christian.
 
-If you want to BE a Christian, then BE one.
+Stop being a wishy-washy candy-ass ... people are disgusted by the faux, half-ass form of *christianity.*
 
-Your ONLY comfort in life and in death is that you are not your own any more.  You are SAVED by Jesus Christ and that means completely transcending your former existence. Being saved means that you become obsessed with a desire to be fully possessed and owned by Christ; this includes every thing that you can think of -- your body, your mind, and your soul; in this life and in whatever might come thereafter.
+Stop thinking of heaven as a post-death retirement community where you get to hang out with your favorite people. 
+
+If you want to BE a Christian, then you have BE one ... that necessarily means that you need to change. EVERY. DAY.
+
+**Your ONLY comfort in life and in death is that you are not your own any more.** You are SAVED by Jesus Christ and that means completely transcending your former existence. Being saved means that you become obsessed with a desire to be fully possessed and owned by Christ; this includes every thing that you can think of -- your body, your mind, and your soul; in this life and in whatever might come thereafter.
 
 * [1 Corinthians. 6:19-20](https://www.biblestudytools.com/1-corinthians/passage/?q=1+corinthians+6:19-20)
 * [Romans. 14:7-9](https://www.biblestudytools.com/romans/passage/?q=romans+14:7-9)
@@ -30,6 +34,18 @@ Your ONLY comfort in life and in death is that you are not your own any more.  Y
 * Eph. 1:13-14
 * Rom. 8:1-17
 
+## When you pray or meditate, do it RIGHT
+
+FOCUS on exactly three asks ... and focus on those in the following priority, ie it's most important to just ask for the first thing and trust God on the others.
+
+1) Ask that the WILL of the Creator of the Universe be done and that you will joyfully celebrate the manifestation of that WILL.
+
+2) Ask that you will have what you need for the next day or few hours; remember the first and most important ask in your prayer ... you will not have the best of everything; you will make the best of everything.
+
+3) Ask that you will be able to forgive the transgression of others and you not ever be tempted to cease fearing, loving and respecting your Creator. Ask that you will be guided in ways that might practically help eliminate the suffering of others.
+
+As a general rule, do not ask for OR expect more than this. Your Creator sees your concerns ... focus on the three asks, so that you do not turn prayer into some sort of demonic, ritualistic chant OR into some sort of pathetic displaying of whining, desire and pride.
+  
 ## Endeavor to compound the improvement of antifragility 
 
 *With every second ... exemplify gratitude as you improve the yield potential your* ***luck surface***
