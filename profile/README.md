@@ -35,7 +35,9 @@ If you want to BE a Christian, then you have BE one ... that necessarily means t
 * [Ephesians 1:13-14](https://www.biblestudytools.com/ephesians/passage/?q=ephesians+1:13-14)
 * [Romans 8:1-17](https://www.biblestudytools.com/romans/passage/?q=romans+8:1-17)
 
-## When you pray or meditate, do it RIGHT or don't do it at all ... do NOT fuck around with prayer; nothing is more serious
+## When you pray or meditate, do it RIGHT
+
+Or don't do it at all ... do NOT fuck around with prayer; nothing is more serious
 
 FOCUS on exactly three asks ... and focus on those in the following priority, ie it's most important to just ask for the first thing and trust God on the others.
 
