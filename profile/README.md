@@ -26,13 +26,14 @@ If you want to BE a Christian, then you have BE one ... that necessarily means t
 * [John 10:27-30](https://www.biblestudytools.com/john/passage/?q=john+10:27-30)
 * [2 Thessalonians 3:3](https://www.biblestudytools.com/2-thessalonians/3-3.html)
 * [1 Peter 1:5](https://www.biblestudytools.com/1-peter/1-5.html)
-* Matt. 10:29-31
-* Luke 21:16-18
-* Romans 8:28
-* Rom. 8:15-16
-* 2 Cor. 1:21-22; 5:5
-* Eph. 1:13-14
-* Rom. 8:1-17
+* [Matthew 10:29-31](https://www.biblestudytools.com/matthew/passage/?q=matthew+10:29-31)
+* [Luke 21:16-18](https://www.biblestudytools.com/luke/passage/?q=luke+21:16-18)
+* [Romans 8:28](https://www.biblestudytools.com/romans/8-28.html)
+* [Romans 8:15-16](https://www.biblestudytools.com/romans/passage/?q=romans+8:15-16)
+* [2 Corinthians. 1:21-22](https://www.biblestudytools.com/2-corinthians/passage/?q=2+corinthians+1:21-22)
+* [2 Corinthians 5:5](https://www.biblestudytools.com/2-corinthians/5-5.html)
+* [Ephesians 1:13-14](https://www.biblestudytools.com/ephesians/passage/?q=ephesians+1:13-14)
+* [Romans 8:1-17](https://www.biblestudytools.com/romans/passage/?q=romans+8:1-17)
 
 ## When you pray or meditate, do it RIGHT or don't do it at all ... do NOT fuck around with prayer; nothing is more serious
 
