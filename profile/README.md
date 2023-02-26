@@ -45,6 +45,6 @@ Stop clinging to the past, to illusions in the rear view mirror -- right now is 
 
 **NEVER EVER EVER try to just fit in; NEVER EVER EVER tolerate gossip, hate-mongering or any form of community-supported fear.**
 
-Imitate ONLY greatness ... call out stupidity when you see it.
+Imitate ONLY greatness; study what makes people great, but be your own person ... be aware of it, but avoid consuming any dipshit mindfuckery; call out stupidity when you see it.
 
 *Don't Believe Me. Just Watch.*
