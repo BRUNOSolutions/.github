@@ -39,13 +39,15 @@ If you want to BE a Christian, then you have BE one ... that necessarily means t
 
 FOCUS on exactly three asks ... and focus on those in the following priority, ie it's most important to just ask for the first thing and trust God on the others.
 
-1) Ask that the WILL of the Creator of the Universe be done and that you will joyfully celebrate the manifestation of that WILL.
+***1) Ask that the WILL of the Creator of the Universe be done and that you will joyfully celebrate the manifestation of that WILL.***
 
-2) Ask that you will have what you need for the next day or few hours; remember the first and most important ask in your prayer ... you will not have the best of everything; you will make the best of everything.
+**2) Ask that you will have what you need for the next day or few hours***; remember the first and most important ask in your prayer, ie realize that *you will not have the best of everything; you will make the best of everything.*
 
-3) Ask that you will be able to forgive the transgression of others and you not ever be tempted to cease fearing, loving and respecting your Creator. Ask that you will be guided in ways that might practically help eliminate the suffering of others.
+***3) Ask that you will be able to forgive the transgression of others and you not ever be tempted to cease fearing, loving and respecting your Creator.*** As part of this, you might ask that you will be guided in ways that might practically help eliminate the suffering of others.
 
-As a general rule, do not ask for OR expect more than this. Your Creator sees your concerns ... focus on the three asks, so that you do not turn prayer into some sort of demonic, ritualistic chant OR into some sort of pathetic displaying of whining, desire and pride.
+As a general rule, do not ask for OR expect more than this. 
+
+Your Creator sees your concerns ... ***focus on the three asks, according to the right priority*** ... do not whine or beg, ***PRAY in order to BE WITH Your Creator.***
   
 ## Endeavor to compound the improvement of antifragility 
 
