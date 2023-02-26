@@ -37,7 +37,7 @@ If you want to BE a Christian, then you have BE one ... that necessarily means t
 
 ## When you pray or meditate, do it RIGHT
 
-Or don't do it at all ... do NOT fuck around with prayer; nothing is more serious
+*Or don't do it at all ... do NOT fuck around with prayer; nothing is more serious.*
 
 FOCUS on exactly three asks ... and focus on those in the following priority, ie it's most important to just ask for the first thing and trust God on the others.
 
