@@ -34,7 +34,7 @@ If you want to BE a Christian, then you have BE one ... that necessarily means t
 * Eph. 1:13-14
 * Rom. 8:1-17
 
-## When you pray or meditate, do it RIGHT
+## When you pray or meditate, do it RIGHT or don't do it at all
 
 FOCUS on exactly three asks ... and focus on those in the following priority, ie it's most important to just ask for the first thing and trust God on the others.
 
