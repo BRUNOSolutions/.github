@@ -25,7 +25,7 @@ If you want to BE a Christian, then you have BE one ... that necessarily means t
 * [John 6:39-40](https://www.biblestudytools.com/john/passage/?q=john+6:39-40)
 * [John 10:27-30](https://www.biblestudytools.com/john/passage/?q=john+10:27-30)
 * [2 Thessalonians 3:3](https://www.biblestudytools.com/2-thessalonians/3-3.html)
-* 1 Pet. 1:5
+* [1 Peter 1:5](https://www.biblestudytools.com/1-peter/1-5.html)
 * Matt. 10:29-31
 * Luke 21:16-18
 * Romans 8:28
@@ -34,7 +34,7 @@ If you want to BE a Christian, then you have BE one ... that necessarily means t
 * Eph. 1:13-14
 * Rom. 8:1-17
 
-## When you pray or meditate, do it RIGHT or don't do it at all
+## When you pray or meditate, do it RIGHT or don't do it at all ... do NOT fuck around with prayer; nothing is more serious
 
 FOCUS on exactly three asks ... and focus on those in the following priority, ie it's most important to just ask for the first thing and trust God on the others.
 
