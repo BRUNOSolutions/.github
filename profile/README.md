@@ -4,7 +4,9 @@
 
 Stop telling people that you are a Christian ... the *tell*, as they say in poker, is phony christians still need to preach to others, rather than to commit to working on the discipline of *personally* BEING a better Christian.
 
-So I'm preaching to myself ... but you can listen to my little introspective monologue if you want ... I tell myself to:
+So I'm preaching to myself ... but you can listen to my little introspective monologue if you want ... but you really don't have to.
+
+I tell myself to:
 
 * Stop being a wishy-washy candy-ass ... people are disgusted by the faux, half-ass, goody two shoes, sunday school kiddie song, form of PRETEND *christianity.*
 
