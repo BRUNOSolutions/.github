@@ -2,9 +2,9 @@
 
 ## BE a Christian
 
-Stop telling people that you are a Christian ... BE a Christian.
+Stop telling people that you are a Christian ... the *tell* is you need to preach to others, rather than to *personally* BE a Christian.
 
-Stop being a wishy-washy candy-ass ... people are disgusted by the faux, half-ass form of *christianity.*
+Stop being a wishy-washy candy-ass ... people are disgusted by the faux, half-ass, goody two shoes, sunday school kiddie song, form of PRETEND *christianity.*
 
 Stop thinking of heaven as a post-death retirement community where you get to hang out with your favorite people. 
 
