@@ -60,7 +60,7 @@ Your discipline is about your soul; if you care about your soul, you commitment 
 
 FOCUS on exactly three asks ... and focus on those in the following priority, ie it's most important to just ask for the first thing and trust God on the others.
 
-***1) Ask that the WILL of the Creator of the Universe be done and that you will joyfully celebrate the manifestation of that WILL.***
+***1) Ask that the WILL of the Creator of the Universe be done and that you will joyfully celebrate the manifestation of that WILL.***  There's no point in continuing with the rest of this prayer or any of your other pathetic begging if you cannot be supremely grateful for every second of your existence and the opportunity to experience the WILL of your Creator.
 
 **2) Ask that you will have what you need for the next day or few hours***; remember the first and most important ask in your prayer, ie realize that *you will not have the best of everything; you will make the best of everything.* Remind yourself that 99% of all pain is only neurological, ie painful enough, but only a matter of being fixated on the pain -- not an actual THING, like a broken femur that you can't walk. What you feel is real enough PSYCHOLOGICALLY, but it's not exactly real physiologically -- it's a message, so "Give us our ***daily*** bread" means just give us enough nutrition so that we can do our work and get by for the next few hours ... we should not worry about having enough for everyone we know to able to eat for the next 10 years *or even 10 days*. 
 
