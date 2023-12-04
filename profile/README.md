@@ -18,9 +18,13 @@ YOU need to work harder at changing *you* ... YOU have to up your discipline gam
 
 **Your ONLY comfort in life and in death must be that you are not your own any more.**
 
-## YOU must change. 
+## YOU must change; YOU must be commited to the discipline of continuing to change.
 
-You are SAVED by Jesus Christ and that means completely transcending your former existence. Being saved means that you become obsessed with a desire to be fully possessed and owned by Christ; this includes every thing that you can think of -- your body, your mind, and your soul; in this life and in whatever might come thereafter.
+You are SAVED by Jesus Christ. That requires you to work harder at completely transcending your former existence. 
+
+Being saved means that you become obsessed with a desire to be fully possessed and owned by Christ.
+
+Your discipline is about your soul; if you care about your soul, you commitment to the discipline of being a better Christian must include every thing that you can think of -- your body, your mind, and your soul; in this life and in whatever might come thereafter.
 
 * [1 Corinthians. 6:19-20](https://www.biblestudytools.com/1-corinthians/passage/?q=1+corinthians+6:19-20)
 * [Romans. 14:7-9](https://www.biblestudytools.com/romans/passage/?q=romans+14:7-9)
