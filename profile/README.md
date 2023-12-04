@@ -4,7 +4,7 @@
 
 Stop telling people that you are a Christian ... the *tell*, as they say in poker, is phony christians still need to preach to others, rather than to commit to working on the discipline of *personally* BEING a better Christian.
 
-So I'm preaching to myself ... but you can listen to my little introspective monologue if you want ... but you really don't have to.
+So I'm preaching to myself ... but you can listen to my little introspective pep talk monologue if you want ... but you really don't have to, because this pep talk is about my PERSONAL attempt to remind myself to work harder on my discipline. That's all.
 
 I tell myself to:
 
