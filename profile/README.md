@@ -8,9 +8,15 @@ Stop being a wishy-washy candy-ass ... people are disgusted by the faux, half-as
 
 Stop thinking of heaven as a post-death retirement community where you get to hang out with your favorite people. 
 
-If you want to BE a Christian, then you have BE one ... that necessarily means that you need to change. EVERY. DAY.
+If you want to BE a Christian, then you have BE one ... that necessarily means that YOU need to work harder at changing *you*. EVERY. SINGLE. MOMENT. OF. EVERY. DAY.
 
-**Your ONLY comfort in life and in death is that you are not your own any more.** You are SAVED by Jesus Christ and that means completely transcending your former existence. Being saved means that you become obsessed with a desire to be fully possessed and owned by Christ; this includes every thing that you can think of -- your body, your mind, and your soul; in this life and in whatever might come thereafter.
+**Your ONLY comfort in life and in death is that you are not your own any more.** 
+
+**Your ONLY comfort in life and in death is that you are not your own any more.** 
+
+**Your ONLY comfort in life and in death is that you are not your own any more.** 
+
+You are SAVED by Jesus Christ and that means completely transcending your former existence. Being saved means that you become obsessed with a desire to be fully possessed and owned by Christ; this includes every thing that you can think of -- your body, your mind, and your soul; in this life and in whatever might come thereafter.
 
 * [1 Corinthians. 6:19-20](https://www.biblestudytools.com/1-corinthians/passage/?q=1+corinthians+6:19-20)
 * [Romans. 14:7-9](https://www.biblestudytools.com/romans/passage/?q=romans+14:7-9)
