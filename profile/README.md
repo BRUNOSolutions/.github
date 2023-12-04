@@ -62,7 +62,7 @@ FOCUS on exactly three asks ... and focus on those in the following priority, ie
 
 ***1) Ask that the WILL of the Creator of the Universe be done and that you will joyfully celebrate the manifestation of that WILL.***
 
-**2) Ask that you will have what you need for the next day or few hours***; remember the first and most important ask in your prayer, ie realize that *you will not have the best of everything; you will make the best of everything.*
+**2) Ask that you will have what you need for the next day or few hours***; remember the first and most important ask in your prayer, ie realize that *you will not have the best of everything; you will make the best of everything.* Remind yourself that 99% of all pain is only neurological, ie painful enough, but only a matter of being fixated on the pain -- not an actual THING, like a broken femur that you can't walk. What you feel is real enough PSYCHOLOGICALLY, but it's not exactly real physiologically -- it's a message, so "Give us our ***daily*** bread" means just give us enough nutrition so that we can do our work and get by for the next few hours ... we should not worry about having enough for everyone we know to able to eat for the next 10 years *or even 10 days*. 
 
 ***3) Ask that you will be able to forgive the transgression of others and you not ever be tempted to cease fearing, loving and respecting your Creator.*** As part of this, you might ask that you will be guided in ways that might practically help eliminate the suffering of others.
 
