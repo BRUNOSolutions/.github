@@ -64,9 +64,9 @@ FOCUS on exactly three asks ... and focus on those in the following priority, ie
 
 **2) Ask that you will have what you need for the next day or few hours***; remember the first and most important ask in your prayer, ie realize that *you will not have the best of everything; you will make the best of everything.* Remind yourself that 99% of all pain is only neurological, ie painful enough, but only a matter of being fixated on the pain -- not an actual THING, like a broken femur that you can't walk. What you feel is real enough PSYCHOLOGICALLY, but it's not exactly real physiologically -- it's a message, so "Give us our ***daily*** bread" means just give us enough nutrition so that we can do our work and get by for the next few hours ... we should not worry about having enough for everyone we know to able to eat for the next 10 years *or even 10 days*. 
 
-***3) Ask that you will be able to forgive the transgression of others and you not ever be tempted to cease fearing, loving and respecting your Creator.*** As part of this, you might ask that you will be guided in ways that might practically help eliminate the suffering of others.
+***3) Ask that you will be able to forgive the transgression of others and you not ever be tempted to cease fearing, loving and respecting your Creator.*** As part of this, also ask that you don't backslide or fall back into the bad habits of being yourself or leading yourself back into temptation. You might ask that you will be guided in ways that might practically help eliminate the suffering of others but the most important part is forgiveness and the serious disciplined intention to cease the bad habits of being yourself.
 
-As a general rule, do not ask for OR expect more than this. 
+As a general rule, do not ask for OR expect more than this. Don't waste your time praying wishing for things; certainly do not attempt to cast spells or seek to have your Creator indulge your idiotic willful choices.
 
 Your Creator sees your concerns ... ***focus on the three asks, according to the right priority*** ... do not whine or beg, ***PRAY in order to BE WITH Your Creator.***
   
