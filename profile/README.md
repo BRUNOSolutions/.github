@@ -19,7 +19,7 @@ So I'm preaching to myself ... but you can listen to my little introspective mon
 
   * **Your ONLY comfort in life and in death must be that you are not your own any more.** 
 
-* **Your ONLY comfort in life and in death must be that you are not your own any more.**
+ * **Your ONLY comfort in life and in death must be that you are not your own any more.**
 
 ## YOU must change; YOU must be commited to the discipline of continuing to change.
 
