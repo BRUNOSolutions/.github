@@ -2,21 +2,24 @@
 
 ## BE a Christian
 
-Stop telling people that you are a Christian ... the *tell* is you need to preach to others, rather than to *personally* BE a Christian.
+Stop telling people that you are a Christian ... the *tell*, as they say in poker, is phony christians still need to preach to others, rather than to commit to working on the discipline of *personally* BEING a better Christian.
 
-Stop being a wishy-washy candy-ass ... people are disgusted by the faux, half-ass, goody two shoes, sunday school kiddie song, form of PRETEND *christianity.*
+So I'm preaching to myself ... but you can listen to my little introspective monologue if you want ... I tell myself to:
 
-Stop thinking of heaven as a post-death retirement community where you get to hang out with your favorite people. 
+* Stop being a wishy-washy candy-ass ... people are disgusted by the faux, half-ass, goody two shoes, sunday school kiddie song, form of PRETEND *christianity.*
 
-If you want to BE a Christian, then **you** have BE a better Christian than you are right now.
+* Stop thinking of heaven as a post-death retirement community where you get to hang out with your favorite people. 
 
-YOU need to work harder at changing *you* ... YOU have to up your discipline game. EVERY. SINGLE. MOMENT. OF. EVERY. DAY.
+* If you want to BE a Christian, then **you** have BE a better Christian than you are right now.
 
-**Your ONLY comfort in life and in death must be that you are not your own any more.** 
+* YOU need to work harder, from right now onward at changing *you* ... YOU have to up your discipline game. EVERY. SINGLE. MOMENT. OF. EVERY. DAY.
 
-**Your ONLY comfort in life and in death must be that you are not your own any more.** 
+* The mantra you need to repeat is:
+  * **Your ONLY comfort in life and in death must be that you are not your own any more.** 
 
-**Your ONLY comfort in life and in death must be that you are not your own any more.**
+  * **Your ONLY comfort in life and in death must be that you are not your own any more.** 
+
+* **Your ONLY comfort in life and in death must be that you are not your own any more.**
 
 ## YOU must change; YOU must be commited to the discipline of continuing to change.
 
