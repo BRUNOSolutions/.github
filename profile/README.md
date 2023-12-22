@@ -1,14 +1,23 @@
 # Bruno SOLUTIONS are primarily about what Bruno SHOULD do
 
-## Bruno Should BE A Better Example
+## For Example ... Bruno Should BE A Better Example Of Working At The Discipline of Being A Better Example
 
 I ***believe*** in [dogfooding](https://en.wikipedia.org/wiki/Eating_your_own_dog_food) the heck out of everything I do ... Bruno.Solutions is about refactoring and upcycling of eating my own dogfood in order have the energy to make dogfood that that I can eat.
 
-This whole *organization* is certainly a matter of dogfooding solutions ... maybe FOR ME FIRST ... but not just selfishly for me ... the aim  is definitely for people who I see that are doing things like political campaigns that I have done with some success for myself; some campaigns fascinate me but ONLY when they are about SERVING consitutents FIRST, before the election.  
+# SERVE your constituents FIRST! It's a campaign ...
 
-Otherwise, campaigns, as they are typically portrayed by the media, in books or certainly in movies are incredibly tedious and boring and complete and utter self-aggrandizing WASTES ... because most campaigns have nothing to do with SERVING the constituents FIRST, long before the constitutents ever go in to voting booth. 
+It's a campaign to stop doing political campaigns WRONG! Stop pandering to whiners. Enlisting your constituents in the campaign of becoming their own solution and being independent of you or any politician's promises.
 
-# This organization is about building campaigns that SERVE the constituents FIRST. 
+***SERVE your constituents FIRST!*** is a radically different political philosophy. It's neither right nor left, it is a forward-looking mindset of builders rather than a backward-looking mindset of whiners longing for a past that never was that they think they see in the rear view mirror. 
+
+***SERVE your constituents FIRST!*** means that the campaign solutions or services are all about [dogfooding](https://en.wikipedia.org/wiki/Eating_your_own_dog_food) ... that expression is about actually listening to your own advice and criticisms as you develop and extend the tools you use to develop the tools that churn out your development campaign. 
+
+***SERVE your constituents FIRST!*** is about letting the dead bury the dead. and moving forward. True freedom and true independence from politicians, especially from politicians who pander to the gossips, victims, those who give up and complain rather than get down to business and fight.
+
+***SERVE your constituents FIRST!*** is about choosing the independence and freedom that comes from the discipline of leveling up everyone's skills to build and develop their own tools. We're not in this campaign of building the discipline to build and develop alone. The INDEPENDENT thinkers are out there. That's why your campaign involves your friends, your peers, your allies who have chosen to not to be victims, but rather have chosen to be developers and builders, chosen to be INDEPENDENT.
+
+***SERVE your constituents FIRST!*** is about REALLY ***serving*** your constituents by challenging them to build and develop their own solutions rather than pandering for the votes of losers who are encouraged to stay dependent and think like victims. The radically different anti-pandering, NO EXCUSES political philosophy is about a campaign of campaigners that embody and build the ***SERVE your constituents FIRST!*** movement. 
+
 
 These repositories are full of mistakes, but their INTENTION is to serve as the start of something that might become an example.
 
