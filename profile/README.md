@@ -18,16 +18,13 @@ It's a campaign to stop doing political campaigns WRONG! Stop pandering to whine
 
 ***SERVE your constituents FIRST!*** is about REALLY ***serving*** your constituents by challenging them to build and develop their own solutions rather than pandering for the votes of losers who are encouraged to stay dependent and think like victims. The radically different anti-pandering, NO EXCUSES political philosophy is about a campaign of campaigners that embody and build the ***SERVE your constituents FIRST!*** movement. 
 
+# The power of EXAMPLE
 
-These repositories are full of mistakes, but their INTENTION is to serve as the start of something that might become an example.
+These repositories are full of mistakes, but their INTENTION is to serve as the start of something that might become an example ... the INTENTION of this is honor the highest and best intentions of one's elders, to respect one's traditions, to be a more genuine Christian and less of a conforming churchgoer.
 
-## Honor Your Highest and Best Intentions of YOour Elders; Be a More Genuine Christian
+Stop telling people that you are a Christian ... the *tell*, as they say in poker, is phony christians are still need to preach to others ... ALL Christians are still phony to a large degree, if they are even partly honest with themselves, because they realize WHY they are not yet good enough enough examples of Christianity YET.
 
-*Bruno Should BE A Better Example* ... that's obvious ... what might not be obvious is that if you want to be a success, then you have to be a better example than you are now ... and YOU know exactly WHY this is true. *We all share this WHY.*
-
-Stop telling people that you are a Christian ... the *tell*, as they say in poker, is phony christians are still need to preach to others ... ALL Christians are still phony, if they are partly honest with themselves, because they realize WHY they are not yet good enough enough examples of Christianity YET.
-
-Rather than just preach, it is necessary to commit to working on the discipline of *personally* BEING a better Christian ... the preaching [to ourselves] is a form of self-hypnotic suggestion ... the person who learns the most in any classroom is the teacher attempting to instruct the students; students often do not REALLY learn a concept until they have to tutor someone else and be responsible for that person actually getting it.
+Rather than just preach, it is necessary to commit to working daily on the discipline of *personally* BEING a better Christian ... the preaching TO OURSELVES is a form of repetitive, self-hypnotic suggestion, but people follow the EXAMPLE ... the person who learns the most in any classroom is the teacher attempting to instruct the students; students often do not REALLY learn a concept until they have to tutor someone else and be responsible for that person actually getting it.
 
 So I'm preaching to myself ... but you can listen to my little introspective pep talk monologue if you want ... but you really don't have to, because this pep talk is about my PERSONAL attempt to remind myself to work harder on my discipline. That's all.
 
