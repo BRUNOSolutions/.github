@@ -8,7 +8,7 @@ As an example of what I should be a better example of, I strongly ***believe*** 
 
 The whole point of the ***SERVE your constituents FIRST!*** is to run a campaign as a better example how campaigns should be done.
 
-***SERVE your constituents FIRST!*** is a campaign to stop doing political campaigns WRONG! Stop pandering to whiners. Enlisting your constituents in the campaign of becoming their own solution and being independent of you or any politician's promises.
+***SERVE your constituents FIRST!*** is a campaign to stop doing political campaigns WRONG! Stop pandering to whiners. Enlisting your constituents in the campaign of becoming their own solution and being independent of yours or any other politician's promises.
 
 ***SERVE your constituents FIRST!*** is a radically different political philosophy. It's neither right nor left, it is a forward-looking mindset of builders rather than a backward-looking mindset of whiners longing for a past that never was that they think they see in the rear view mirror. 
 
