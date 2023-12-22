@@ -16,9 +16,12 @@ The whole point of the ***SERVE your constituents FIRST!*** is to run a campaign
 
 ***SERVE your constituents FIRST!*** is about letting the dead bury the dead. and moving forward. True freedom and true independence from politicians, especially from politicians who pander to the gossips, victims, those who give up and complain rather than get down to business and fight.
 
-***SERVE your constituents FIRST!*** is about choosing the independence and freedom that comes from the discipline of leveling up everyone's skills to build and develop their own tools. We're not in this campaign of building the discipline to build and develop alone. The INDEPENDENT thinkers are out there. That's why your campaign involves your friends, your peers, your allies who have chosen to not to be victims, but rather have chosen to be developers and builders, chosen to be INDEPENDENT.
+***SERVE your constituents FIRST!*** is about choosing the independence and freedom that comes from the discipline of leveling up everyone's skills to build and develop their own tools. 
 
 ***SERVE your constituents FIRST!*** is about REALLY ***serving*** your constituents by challenging them to build and develop their own solutions rather than pandering for the votes of losers who are encouraged to stay dependent and think like victims. The radically different anti-pandering, NO EXCUSES political philosophy is about a campaign of campaigners that embody and build the ***SERVE your constituents FIRST!*** movement. 
+
+***SERVE your constituents FIRST!*** campaign involves ONLY those friends, peers, allies who have chosen to SERVE rather than give in to victim others, but rather have chosen to be developers and builders, chosen to be sustainably INDEPENDENT. We're not in this campaign of building the discipline to build and develop alone ... but the INDEPENDENT thinkers out there understand that it does not matter if one seems to be alone or seems to be in an overwhelming majority.  
+
 
 # The power of EXAMPLE
 
