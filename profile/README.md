@@ -1,10 +1,10 @@
 # Bruno SOLUTIONS are primarily about what Bruno SHOULD do
 
-## For Example ... Bruno Should BE A Better Example Of Working At The Discipline of Being A Better Example
+***For Example ... Bruno Should BE A Better Example Of Working At The Discipline of Being A Better Example***
 
-I ***believe*** in [dogfooding](https://en.wikipedia.org/wiki/Eating_your_own_dog_food) the heck out of everything I do ... Bruno.Solutions is about refactoring and upcycling of eating my own dogfood in order have the energy to make dogfood that that I can eat.
+As an example of what I should be a better example of, I strongly ***believe*** in [dogfooding](https://en.wikipedia.org/wiki/Eating_your_own_dog_food) the heck out of everything I do ... Bruno.Solutions is about refactoring and upcycling of eating my own dogfood in order have the energy to make dogfood that that I can eat ... this is what *SERVE your constituents FIRST* political philosophy is about.
 
-# SERVE your constituents FIRST! It's a campaign ...
+# SERVE your constituents FIRST! is a active campaign ... to be a better example.
 
 It's a campaign to stop doing political campaigns WRONG! Stop pandering to whiners. Enlisting your constituents in the campaign of becoming their own solution and being independent of you or any politician's promises.
 
