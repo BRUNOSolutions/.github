@@ -27,7 +27,7 @@ The whole point of the ***SERVE your constituents FIRST!*** is to run a campaign
 
 These repositories are full of mistakes, but their INTENTION is to serve as the start of something that might become an example ... the INTENTION of this is honor the highest and best intentions of one's elders, to respect one's traditions, to be a more genuine Christian and less of a conforming churchgoer.
 
-Stop telling people that you are a Christian ... the *tell*, as they say in poker, is phony christians are still need to preach to others ... ALL Christians are still phony to a large degree, if they are even partly honest with themselves, because they realize WHY they are not yet good enough enough examples of Christianity YET.
+Stop **just** *telling* people that you are a Christian ... the real *tell*, as the expression is used in playing poker or bluffing, is that phony christians are still need to preach to others ... that's the *TELL* ... ALL Christians are still phony to a large degree, if they are even partly honest with themselves, because they evangelically realize WHY the preaching is for themselves, since they are not yet good enough enough examples of Christianity YET.
 
 Rather than just preach, it is necessary to commit to working daily on the discipline of *personally* BEING a better Christian ... the preaching TO OURSELVES is a form of repetitive, self-hypnotic suggestion, but people follow the EXAMPLE ... the person who learns the most in any classroom is the teacher attempting to instruct the students; students often do not REALLY learn a concept until they have to tutor someone else and be responsible for that person actually getting it.
 
